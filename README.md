@@ -1,0 +1,1 @@
+# dnajgo_basd_veiw
